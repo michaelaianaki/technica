@@ -1,1 +1,1 @@
-# wetried
+# technica
